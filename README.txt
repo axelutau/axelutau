@@ -1,0 +1,5 @@
+- 👋 Hi, I’m axel, my pronouns are he/xe
+- 👀 I’m interested in vocal synths
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on anything really
+- 📫 How to reach me: discord | axelisinacult#1837
